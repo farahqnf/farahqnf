@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **qatrunnadafarah@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1WCwcRYq9e4VU1qRJ4Zin-t8nlXJjid1q?usp=share_link](https://drive.google.com/drive/folders/1WCwcRYq9e4VU1qRJ4Zin-t8nlXJjid1q?usp=share_link)
+- 📄 Know about my experiences [https://intip.in/PortfolioFarahQatrunnada](https://intip.in/PortfolioFarahQatrunnada)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
