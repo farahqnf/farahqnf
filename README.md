@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **qatrunnadafarah@gmail.com**
 
-- 📄 Know about my experiences [https://intip.in/PortfolioFarahQatrunnada](https://intip.in/PortfolioFarahQatrunnada)
+- 📄 Know about my experiences [https://intip.in/PortfolioWebDeveloperFarahQatrunnadaNF](https://intip.in/PortfolioWebDeveloperFarahQatrunnadaNF)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
